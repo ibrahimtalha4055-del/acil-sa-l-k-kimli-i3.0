@@ -1,1 +1,0 @@
-# acil-sa-l-k-kimli-i3.0
